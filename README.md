@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @xoElf
 - 🌱 I’m currently learning batch scripts and HTML
-- 📫 How to reach me: Elf#0779 on Discord
+- 📫 How to reach me: Elf4224 on Discord
